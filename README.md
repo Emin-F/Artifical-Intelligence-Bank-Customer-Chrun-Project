@@ -1,1 +1,1 @@
-# Artifical-Intelligence-Bank-Customer-Chrun-Project
+# Artifical Intelligence Bank Customer Chrun Project
